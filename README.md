@@ -1,4 +1,4 @@
-Hi, I'm Sushii
+Hi, I'm Sushii.
 I know computers.
 Not coding.
 This is my journey.
